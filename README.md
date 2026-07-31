@@ -39,4 +39,4 @@ I am a Computer Science student who focuses on computer network administration. 
 
 📸 **Instagram:** [@sinaga797](https://www.instagram.com/sinaga797?igsh=enhjbmdkamdqNTlh)
 
-💼 **LinkedIn:** [](#)
+💼 **LinkedIn:** [christian nicholas sinaga](www.linkedin.com/in/christian-nicholas-sinaga-735b7336b)
